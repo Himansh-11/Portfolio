@@ -1,3 +1,5 @@
+Certification Acquired - https://www.linkedin.com/in/himansh-rajak/details/certifications/
+
 Google Skillboost Badges - https://www.cloudskillsboost.google/public_profiles/bd0fd151-ba8f-47e5-a582-99f5323dacb5
 
 Data Analytics project links below:
